@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Yashi Shashwat
 - 👀 I’m interested in Harry Potter 🧙🏼‍♂️
-- 🌱 I’m currently learning Fr. Agnel School ✝
+- 🌱 I’m currently learning in Fr. Agnel School ✝
 - 💞️ I’m looking to collaborate on nothing 🙄
 - 📫 How to reach me: y4sh123456@outook.com
 
